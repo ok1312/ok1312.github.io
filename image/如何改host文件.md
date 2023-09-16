@@ -15,9 +15,9 @@
 # 次元.漫画.视频
 [](#聊天)
 [![hosts](https://av8600.github.io/image/ha3.jpg)](#22-如何修改hosts)
-### 18+哔咔漫画下载[点击进入](https://bkbwfjvm.com?ch=oebg21bk)
-### 18+ 91次元下载[点击进入](https://91yfhnqp.com/?ch=oebg21cy)
-### 18+糖心下载[点击进入](https://txs705ut.com/?_c=oebg31tx)
-### 18+海角社区[点击进入](https://d.hj58gd.com/?channel=ykhjqq1)
+### 18+哔咔漫画下载[点击进入](https://bk2h8x95.com?ch=oebg21bk)
+### 18+ 91次元下载[点击进入](https://919kjkvo.com/?ch=oebg21cy)
+### 18+糖心下载[点击进入](https://tx0oenb0.com/?_c=oebg31tx)
+### 18+海角社区[点击进入](https://d.hj67ge.com/?channel=ykhjqq1)
 
 
