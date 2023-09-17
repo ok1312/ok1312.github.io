@@ -1,7 +1,7 @@
 # 同城约爱
 [](#聊天)
 [![hosts](https://av8600.github.io/image/ha1.jpg)](#22-如何修改hosts)
-###    18+ 一对一美女(可裸).直接约 [点击进入](https://jy09110519-1317033022.cos.accelerate.myqcloud.com/su.html?t=001gz_298)
+###    18+ 一对一美女(可裸).直接约 [点击进入](https://jy09110519-1317033022.cos.accelerate.myqcloud.com/location.html?t=001gz_298)
 # 萌萝.抖音.快手
 [](#聊天)
 [![hosts](https://av8600.github.io/image/ha2.jpg)](#22-如何修改hosts)
