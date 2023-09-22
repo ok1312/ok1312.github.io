@@ -10,8 +10,8 @@
 ### 18+抖音下载[点击进入](https://ikso847nz.top/?channel_code=MIM05BG1)
 ### 18+快手下载[点击进入](https://frf5p70lo.top/?channel_code=MIM04BG1)
 ### 18+蜜臀下载[点击进入](https://sibt7ldvw.top/?channel_code=MIM18BGG)
-### 18+优酷下载[点击进入](https://udx3w8n2r.top/?channel_code=MIM13BG)
-### 18+影视解说[点击进入](https://etg3q86vi.top/?channel_code=MIM17BG2)
+### 18+优酷下载[点击进入](https://dz10dl3ul.top/?channel_code=MIM13BG)
+### 18+水果派[点击进入](https://wjv37xsga.top/?channel_code=MIM17BG2)
 # 次元.漫画.视频
 [](#聊天)
 [![hosts](https://av8600.github.io/image/ha3.jpg)](#22-如何修改hosts)
