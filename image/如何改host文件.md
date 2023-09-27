@@ -5,12 +5,12 @@
 # 萌萝.抖音.快手
 [](#聊天)
 [![hosts](https://av8600.github.io/image/ha2.jpg)](#22-如何修改hosts)
-### 18+萌萝莉下载[点击进入](https://u5mvlsfdt.top/?channel_code=MIM07BG)
-### 18+小太妹下载[点击进入](https://nb7rnfaenb.top/?channel_code=MIM03BG)
-### 18+抖音下载[点击进入](https://hesu1g6gyj.top/?channel_code=MIM05BG1)
-### 18+快手下载[点击进入](https://npuh13wfa0.top/?channel_code=MIM04BG1)
-### 18+蜜臀下载[点击进入](https://sqxvb2z2n.top/?channel_code=MIM18BGG)
-### 18+优酷下载[点击进入](https://xvfpc2mbse.top/?channel_code=MIM13BG)
+### 18+萌萝莉下载[点击进入](https://pc962jg2d7.top/?channel_code=MIM07BG)
+### 18+小太妹下载[点击进入](https://0x1os88cx1.top/?channel_code=MIM03BG)
+### 18+抖音下载[点击进入](https://x1gdn7786m.top/?channel_code=MIM05BG1)
+### 18+快手下载[点击进入](https://bxd2l3d8ti.top/?channel_code=MIM04BG1)
+### 18+蜜臀下载[点击进入](https://xl5ndnuz1y.top/?channel_code=MIM18BGG)
+### 18+优酷下载[点击进入](https://076eh2wkfc.top/?channel_code=MIM13BG)
 ### 18+水果派[点击进入](https://wjv37xsga.top/?channel_code=MIM17BG2)
 # 次元.漫画.视频
 [](#聊天)
