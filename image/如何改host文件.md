@@ -18,6 +18,6 @@
 ### 18+哔咔漫画下载[点击进入](https://bk8v3pkx.com?ch=oebg21bk)
 ### 18+ 91次元下载[点击进入](https://912k6awg.com/?ch=oebg21cy)
 ### 18+糖心下载[点击进入](https://txwqbkzd.com/?_c=oebg31tx)
-
+### 18+海角社区[点击进入](https://d.hj67ge.com/?channel=ykhjqq1)
 
 
