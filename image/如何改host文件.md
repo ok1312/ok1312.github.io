@@ -7,7 +7,7 @@
 [![hosts](https://av8600.github.io/image/ha2.jpg)](#22-如何修改hosts)
 ### 18+萌萝莉下载[点击进入](https://fcd3d57ozk.top/?channel_code=MIM07BG)
 ### 18+小太妹下载[点击进入](https://noceo8z3h3.top/?channel_code=MIM03BG)
-### 18+抖音下载[点击进入][(https://oqcfzng6si.top/?channel_code=MIM05BG1)
+### 18+抖音下载[点击进入](https://oqcfzng6si.top/?channel_code=MIM05BG1)
 ### 18+快手下载[点击进入](https://hmpdxxyc1v.top/?channel_code=MIM04BG1)
 ### 18+蜜臀下载[点击进入](https://tpff0e53ed.top/?channel_code=MIM18BGG)
 ### 18+优酷下载[点击进入](https://50amg7y6j5.top/?channel_code=MIM13BG)
